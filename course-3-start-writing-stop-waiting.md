@@ -33,12 +33,6 @@ If you've been waiting for the perfect time to write — this is it.
 
 ---
 
-# 📘 **Course 3: Start Writing, Stop Waiting**
-
-*Beat perfectionism and develop strong writing habits.*
-
----
-
 ## 🗺️ Visual Guide: The Writing Momentum Map
 
 Here’s a simple flowchart showing how writers move from being “stuck” to writing with confidence and consistency:
